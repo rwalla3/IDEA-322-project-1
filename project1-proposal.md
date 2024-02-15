@@ -1,10 +1,10 @@
 ## Project Proposals
 
-**ONE: Local Flora & Fauna**  
+**Local Flora & Fauna**  
 
 
-**TWO: Gallery of Familiar Places**  
+**Gallery of Familiar Places**  
 
 
-**THREE: Bodies**  
+**Water Bodies**  
 
